@@ -1,0 +1,6 @@
+POLÍTICA DE PRIVACIDAD Y DE PROTECCIÓN DE DATOS PERSONALES
+
+1.- Ámbito de aplicación. Titularidad de www.miriadax.net
+
+La presente política de privacidad y de protección de datos personales rige el tratamiento de los datos personales de los usuarios del portal web de cursos universitarios abiertos, masivos y gratuitos www.miriadax.net, (en adelante, el sitio web, el Portal, la plataforma Miríada X o, simplemente, Miríada X), titularidad de Telefónica Educación Digital, S.L.U., con CIF B-82.857.053 y con domicilio a estos efectos en Distrito Telefónica, Ronda de la Comunicación s/n, Edificio Oeste 1, Planta 4ª, 28050, Madrid,  y de Universia Holding, S.L., con CIF B-82976515, inscrita en el Registro Mercantil de Madrid, Tomo 16.547, Libro 0, Folio 103, Sección 8, Hoja M-281891, Inscripción 1ª, y domicilio social en Avda. de Cantabria s/n, Boadilla del Monte, 28660, Madrid, España, ambos con dirección electrónica de contacto en info@miriadax.net (en adelante, conjuntamente, los Titulares).
+A continuación se expone la Política de Privacidad y Protección de Datos aplicable en www.miriadax.net a la información y datos personales que los usuarios faciliten cuando se registre en el sitio web y utilice sus diferentes servicios o herramientas (en adelante, los usuarios o el usuario).   
